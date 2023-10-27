@@ -5,11 +5,9 @@
 
 - 📫 How to reach me **nanafirzanah01@gmail.com**
 
-- ⚡ Fun fact **Im friendly person and always want to learn about IT**
+- ⚡ Fun fact **Im friendly person and willing to learn about IT**
 
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
+
 
 
 Hi there 👋
